@@ -20,3 +20,16 @@ So, here i show you a new check-list of same project:
 
 
 ![image](https://user-images.githubusercontent.com/108080287/175332724-1b882ae7-369f-47cf-9dd3-3bc8723c9991.png)
+
+
+Wait the moment, when i do them all and show you a really maded project!
+
+
+                                                                      Conctact with me:
+@MAIL: Rarr12_games@list.ru
+
+                                                                      My social pages:                                                                                                                                                      
+                                                                     Telegram:@rarr12_Games
+
+
+facebook.com/rarr12                                                                                                                            vk.com/rarr12
